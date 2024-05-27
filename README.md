@@ -24,5 +24,4 @@ Bu bölümde ise oyunda aşağı inme tuşuna basarak sonsuz altınlara kavuşma
 Ve oyunun kapanış sahnesi Super Mario oyunu tamamlar ve kaledeki Prensesine kavuşur.
 
 
-[
 ](https://drive.google.com/file/d/1AxD9GVopXwEvDM_BVK-7eNTY8O5BOUIT/view?usp=sharing)
