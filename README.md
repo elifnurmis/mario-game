@@ -18,3 +18,4 @@ Bu bölümde ise oyunda aşağı inme tuşuna basarak sonsuz altınlara kavuşma
 
 ![image](https://github.com/elifnurmis/mario-game/assets/129744547/c51f9c93-058c-48a9-84c3-9f2dd8f1dc27)
 Ve oyunun kapanış sahnesi Super Mario oyunu tamamlar ve kaledeki Prensesine kavuşur.
+
