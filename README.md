@@ -23,3 +23,19 @@ Bu bölümde ise oyunda aşağı inme tuşuna basarak sonsuz altınlara kavuşma
 
 Ve oyunun kapanış sahnesi Super Mario oyunu tamamlar ve kaledeki Prensesine kavuşur.
 
+
+Uploading WhatsApp Video 2024-05-27 at 10.41.05.mp4…
+
+
+
+Uploading WhatsApp Video 2024-05-27 at 10.41.05.mp4…
+
+
+
+Uploading WhatsApp Video 2024-05-27 at 10.41.05.mp4…
+
+
+
+Uploading WhatsApp Video 2024-05-27 at 10.41.05.mp4…
+
+
